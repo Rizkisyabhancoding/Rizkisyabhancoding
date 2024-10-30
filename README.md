@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Rizkisyabhancoding
+- 👀 I’m interested in technologi
+- 🌱 I’m currently learning programming
+- 💞️ I’m looking to collaborate on who's?
+- 📫 How to reach me ...
+- 😄 Pronouns: ...
+- ⚡ Fun fact: I'm still learn right now
